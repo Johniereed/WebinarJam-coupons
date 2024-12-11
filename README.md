@@ -26,7 +26,7 @@ Claim a [30% off](https://bit.ly/46hNin1) WebinarJam coupon code just for you. T
 
 Get the basic plan for [just $79](https://bit.ly/46hNin1), making it the most affordable webinar software on the market. And with all the bells and whistles included, it's an absolute steal.
 
-## Get a $1 Trial of Coupon Code
+## Get a $1 Trial WebinarJam Coupon Code
 
 Get a 30-day free trial just [for $1](https://bit.ly/46hNin1) that will allow you to try all the features.
 

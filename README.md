@@ -54,7 +54,7 @@ Step 6: Finish the checkout process by providing your billing details.
 
 .
 
-## WebinarJam Pricing Plans (Step-by-Step)
+## WebinarJam Pricing Plans [Explained]
 
 WebinarJam offers a range of pricing plans to fit every budget and business need.
 

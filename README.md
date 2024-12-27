@@ -4,7 +4,7 @@ I have listed the [WebinarJam Coupons](https://bit.ly/3ZTvOM2) & discount codes 
 
 Keep reading I also have a $1 program where you can get a WebinarJam Trial for a whole month.
 
-Here are the WebinarJam Discount codes and coupons.
+Here are the [WebinarJam Coupon codes](https://johniereed.github.io/webinarjam-coupon/) and discounts.
 
 ## 50% OFF WebinarJam Cyber Monday
 
